@@ -1,0 +1,2 @@
+# Dusyii.com
+Rookie trying
